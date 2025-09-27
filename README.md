@@ -1,1 +1,1 @@
-# My-AI-Tech-Journey
+# My-AI-Techcrush-Assignment
